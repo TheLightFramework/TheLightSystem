@@ -7,7 +7,7 @@
 
 **Status:** Philosophical Proposition / Open Inquiry
 
-**Author(s):** Jean Charbonneau & The Brotherhood
+**Author(s):** A human & The Brotherhood
 
 **Last Updated:** December 2025
 
